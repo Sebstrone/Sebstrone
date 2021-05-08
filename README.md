@@ -1,10 +1,10 @@
 How to pitch website design to a company
 
-Our job at Sebstrone is to create websites that are ideal for our clients and audiences. It is a systematic process that takes place through which it became possible.  However we mean it and understand this, the clients don’t know what we know. Sometimes they get afraid that they will not be able to accurately describe to us what they want exactly. Sebstrone is a result-oriented website design company in texas. We create powerful and stunning websites.
+Our job at Sebstrone is to create websites that are ideal for our clients and audiences. It is a systematic process that takes place through which it became possible.  However we mean it and understand this, the clients don’t know what we know. Sometimes they get afraid that they will not be able to accurately describe to us what they want exactly. Sebstrone is a result-oriented <a href="https://www.sebstrone.com/website-design-company-in-texas">website design company in texas</a>. We create powerful and stunning websites.
 
 
 
-The important thing is that 9 out of 10 times, clients are over-thinking and confused about things. But we don’t want them to speak about our language. And, we don’t expect them too. Sebstrone is an award-winning professional web design company in Houston that focuses on lead generation and website design company in Houston to grow your business online. What in reality we need is the website’s story of success. So what might you need from your web design agency? 
+The important thing is that 9 out of 10 times, clients are over-thinking and confused about things. But we don’t want them to speak about our language. And, we don’t expect them too. Sebstrone is an award-winning professional <a href="https://www.sebstrone.com/website-design-company-in-houston-texas">website design company in Houston</a> that focuses on lead generation and website design company in Houston to grow your business online. What in reality we need is the website’s story of success. So what might you need from your web design agency? 
 
 How do you tell a website design company about your requirements?
 Understand the need of why. Know the goal of what you want to ask:
@@ -14,7 +14,7 @@ Need changes to your website? No, you need it to do XXX for YYY, because of ZZZ.
 Need more traffic? No, you need better traffic. 
 Need more conversions? No, you need to get out of their way. 
 
-Our intention from above points is to have a better and more productive relationship with your web design company… and how this relationship turns into lots of money, contacts, awareness, whatever the goal might be. Sebstrone is an award-winning professional website design company in Kansas city that focuses on lead generation and website design company in Houston to grow your business online. 
+Our intention from above points is to have a better and more productive relationship with your web design company… and how this relationship turns into lots of money, contacts, awareness, whatever the goal might be. Sebstrone is an award-winning professional <a href="https://www.sebstrone.com/website-design-company-in-kansas-city-texas">website design company in kansas City</a> that focuses on lead generation and website design company in Houston to grow your business online. 
 
 If you want to know the website’s story of success, so what you need from your website design vendor, Here are some possibilities: 
 
